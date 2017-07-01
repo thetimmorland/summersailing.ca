@@ -24,6 +24,13 @@ Xandra has grown up in the sailing world; her family currently owns a Hunter 33.
 
 Alexandra has been sailing for thirteen years, she sailed out of numerous clubs, and raced laser as well as double handed. She is currently studying Commerce at the University of Toronto where she is a member of the competitive sailing team. This will be Alexandra’s second year with EYC and she can’t wait to get back on the water this summer!
 
+## Victoria Shalygin
+# CANSail 3/4 Team Leader
+
+I started sailing at summer camps in Toronto and have been a sailing instructor for five years. This is
+my first season at EYC JSP and I am very excited to bring my experience to the program. I am a
+musician and just finished my third year studying at Humber College.
+
 ## Sean Wylie
 # CANSail 1/2 & Wetfeet Instructor
 

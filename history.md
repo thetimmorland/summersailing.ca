@@ -1,7 +1,7 @@
 ---
 layout: page
-title: About
-permalink: /about/
+title: History
+permalink: /history/
 ---
 
 The EYC Junior Sail Program, commenced trial operations in the summer of 2000 by bringing in the Ontario Sailing Association’s BOOM program. This is a turn-key mobile delivery of a sail training program by the OSA. Since the BOOM program at EYC was well attended in each of the summers of 2000 and 2001, we felt confident that if we set invested in our own sail training dinghies and coach boats, we would have a good chance of being successful.
