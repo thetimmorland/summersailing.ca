@@ -11,11 +11,13 @@ Sailing all summer our race team members make strong friendships and become extr
 For those who want to race we have a few options for different boats depending on size, experience and if the sailor wants to race solo or two-handed.
 
 # Optimist
+![Optimist Race Team](/assets/learn-to-race/opti-race.jpg)
 
 The best way to introduce young sailors to racing is in the Optimist class.
  
 To join the Optimist racing team a sailor should have passed at least CANSail 1 and be comfortable sailing in a variety of weather conditions. The only restriction on age is that the sailor should be under the age of 16 on 31st December of the year in which he or she is racing. Typically Optimists racers on Lake Ontario are between the ages of 10 and 14 and weigh between 65lbs and 120lbs. Light winds favour the lighter sailors, strong winds favour those who are heavier.
 
 # Laser
+![Laser Race Team](/assets/learn-to-race/laser-race.jpg)
 
 For more experienced sailors who want to continue with single-handed racing the Laser is the boat of choice. The Laser is raced internationally and is an extremely competitive class. To join the Laser racing team a sailor should have passed at least CANSail 3. Typically Laser sailors are aged 13 and up, although younger sailors are seen on the racing circuit it is unusual. The optimal weight for sailing a Laser Radial is between 120lbs and 160lbs.
