@@ -4,7 +4,7 @@ title: Our Instructors
 permalink: /our-instructors/
 ---
 
-## Bed Redfern
+## Ben Redfern
 # Head Instructor
 ![Ben](/assets/our-team/ben.jpg)
 
