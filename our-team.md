@@ -20,7 +20,7 @@ Duncan is the Laser race coach, he first learned to sail through the EYC junior 
 # Optimist Race Coach
 ![Xandra](/assets/our-team/xandra.jpg)
 
-Xandra has grown up in the sailing world; her family currently owns a Hunter 33.6 docked at Port Credit Harbor Marina. She completed her learn to sail levels at Port Credit Yacht Club, and raced lasers as well as 420s. This will be Xandra’s third summer coaching at EYC, and she is very excited to be coaching this year’s Optimist race team. Last year EYC had only a single Optimist racer and Xandra is looking forward to building a larger team this year giving new young sailors an opportunity to experience the thrill of competition. Xandra is currently studying Gerontology with a minor in Psychology at Laurentian University.
+Xandra has grown up in the sailing world; her family currently owns a Hunter 33.6 sailboat docked at Port Credit Harbour Marina. She completed her learn to sail levels at Port Credit Yacht Club, as well as raced lasers and 420s. This will be Xandra's fourth summer coaching at EYC, coaching the Optimist race team for the second year. She is looking forward to seeing some old racers as well as welcoming some new racers to the team! Xandra is currently finishing up her degree at Laurentian University studying Gerontology with a minor in Psychology
 
 ## Alexandra Mclaughlin
 # CANSail 3/4 Instructor
