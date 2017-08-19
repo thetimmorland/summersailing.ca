@@ -5,6 +5,8 @@ permalink: /youth-regatta/
 ---
 # August 24 & 25 2017
 
+<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=2948">Click Here To Register</a></h2>
+
 Hans Fogh was a one of the most successful competitive sailors in history, with dozens of national and international championships and in many different classes, including two Olympic medals. He was a big supporter of youth sailing and we are pleased to name our regatta after him.
 
 The aim of the regatta which is held annually in August,  is to provide an opportunity for budding two-handed racers to take part in a friendly, introductory, competition.  The event is open to members of sailing schools and clubs who are under the age of 18.  There are four classes; Club 420 white sail and spinnaker, RS Feva XL and RS Feva S.  As in Previous years Thomas Fogh has agreed to volunteer his time as guest coach.  Thomas will be coaching the back half of the fleets to ensure everyone gets the maximum from their time on the water.  This year we are also pleased further raise the standard of the event by having international race officer, Irene McNeill running things on the water.
@@ -19,5 +21,7 @@ Competitors' meeting time changed to 09:30h August 24, 2017.  Warning signal fir
 <h1><a href="/assets/youth-regatta/hans-fogh-liability-waiver-2017.pdf">Liability Waiver</a></h1>
 
 <h1><a href="/assets/youth-regatta/hans-fogh-sailing-instructions-2017.pdf">Sailing Instructions</a></h1>
+
+<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=2948">Click Here To Register</a></h2>
 
 
