@@ -14,4 +14,10 @@ We strive to keep this event one of the most affordable in the youth racing cale
 There are generally few opportunities to race RS Fevas in Ontario and we are keen to support and grow this class.  Clubs with RS Fevas are particularly welcome to race with us.   In 2018 the RS Feva world championships will be held in Florida, the first time they have been held outside Europe.  What better way to prepare than to race in the biggest Canadian RS Feva regatta?
 
 <h1><a href="/assets/youth-regatta/hans-fogh-notice-of-race-2017.pdf">Notice Of Race - Amended 2017/08/19</a></h1>
+Competitors' meeting time changed to 09:30h August 24, 2017.  Warning signal first race (first day) remains 11:00h August 24, 2017
+
 <h1><a href="/assets/youth-regatta/hans-fogh-liability-waiver-2017.pdf">Liability Waiver</a></h1>
+
+<h1><a href="/assets/youth-regatta/hans-fogh-sailing-instructions-2017.pdf">Sailing Instructions</a></h1>
+
+
