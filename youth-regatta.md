@@ -24,7 +24,7 @@ Competitors' meeting time changed to 09:30h August 24, 2017.  Warning signal fir
 
 <h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=2948">Click Here To Register</a></h2>
 
-<h1><a href="/assets/youth-regatta/hans-fogh-registrations-2017.htm">Registered Competitors</a></h2>
+<h1><a href="/assets/youth-regatta/hans-fogh-registrations-2017.htm">Registered Competitors</a></h1>
 
 
 
