@@ -4,7 +4,7 @@ title: Registration
 permalink: /registration/
 ---
 
-<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=2948">Click Here To Register</a></h2>
+<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3166">Click Here To Register</a></h2>
 
 Registration for the summer season typically opens early in January.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.
 
