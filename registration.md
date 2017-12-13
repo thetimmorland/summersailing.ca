@@ -6,7 +6,7 @@ permalink: /registration/
 
 <h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3166">Click Here To Register</a></h2>
 
-Registration for the summer season typically opens early in January.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.
+Registration for the summer of 2018 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  There are some changes to the programs this year, in particular CANSail 3/4 courses are now offered only as a 4 week option.  We have found that shorter course do not offer enough time for sailor skill development and practice.
 
 # Discounts
 
