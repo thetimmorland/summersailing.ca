@@ -40,7 +40,7 @@ Sean has been around sailboats all of his life, from cruising in Georgian Bay to
 When Sean is not at EYC, he is racing Collegiate 420s for the University of Ottawa and studying Mechanical Engineering. 
 After a great season coaching CANSail 2, Sean is excited to help sailors in CANSail 3/4 grow their sailing skills and have an amazing summer.
 
-## Deanna Balas
+## Deanne Balas
 # CANSail 1/2 Instructor
 ![Deanne](/assets/our-team/2018Deanne.jpg)
 
