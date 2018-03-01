@@ -47,7 +47,7 @@ After a great season coaching CANSail 2, Sean is excited to help sailors in CANS
 Deanne was introduced to sailing at a young age through trips on her family keel boat in Lake Champlain.  She started a Learn to Sail program at age 8 and loved sailing around the harbour in her own boat.  Later on in her sailing adventures she was introduced to racing.  This brought on a whole new side of sailing that she never knew about, tactics and strategy.  She has raced in RS Fevas, Club 420s, Lasers, and keel boats.  While on the race team she formed a new family with people that loved the sport as much as her and would spend hours on the water together.  A number of the people from that racing family are also instructors at EYC.
 Deanne is currently in her second year at Dalhousie University in Neuroscience. This will be her second year as a CANSail 1/2 instructor and she is so excited to see new and old faces this summer.
 
-## Melodie Philips
+## Mélodie Philips
 # CANSail 1/2 Instructor
 ![Melodie](/assets/our-team/2018Melodie.jpg)
 
