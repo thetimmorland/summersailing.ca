@@ -68,7 +68,7 @@ She looks forward to sharing her love of sailing with younger sailors this summe
 
 ## Nick Graham
 # CANSail 1/2 Instructor
-![Nick](/assets/our-team/2018Untitled.jpg)
+![Nick](/assets/our-team/2018Nick.jpg)
 
 
 
@@ -85,5 +85,8 @@ Cassie is extremely excited to take on a new challenge as a sailing instructor. 
 
 ## Jay Jeyarajan
 # Program Coordinator
-![Untitled](/assets/our-team/2018Untitled.jpg)
+![Untitled](/assets/our-team/2018Jay.jpg)
 
+Jay works as an After School Program Teacher in Etobicoke and a Child and Youth Worker in Burlington. This Summer he has decided to work with children in a different setting. The idea of working outdoors near water in the summer just sounds amazing.  Jay looks forward to new challenges and to learning new things, this summer it’s going to be sailing.
+
+Jay was born and raised in Germany and moved to Toronto when he was 13.  He loves this city and its culture.  Jay is a Toronto Raptors fanatic and loves all things basketball, including coaching.  In the past few years he has also started long distance running.
