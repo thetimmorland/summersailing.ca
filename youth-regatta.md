@@ -21,8 +21,9 @@ There are generally few opportunities to race RS Fevas in Ontario and we are kee
 
 # <a href="/assets/youth-regatta/hans-fogh-liability-waiver-2018.pdf">Liability Waiver</a>
 
-# Sailing Instructions
-To be published
+# <a href="/assets/youth-regatta/hans-fogh-si-2018.pdf">Sailing Instructions</a>
+
+# <a href="/assets/youth-regatta/hans-fogh-registrations-2018.htm">2018 Competitor List</a>
 
 # <a href="/assets/youth-regatta/hans-fogh-results-final-2017.htm">2017 Results</a>
 
