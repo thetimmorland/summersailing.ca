@@ -15,17 +15,18 @@ We strive to keep this event one of the most affordable in the youth racing cale
 
 There are generally few opportunities to race RS Fevas in Ontario and we are keen to support and grow this class.  Clubs with RS Fevas are particularly welcome to race with us.
 
-# <a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3166">Click Here To Register</a>
+--# <a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3166">Click Here To Register</a>
 
-# <a href="/assets/youth-regatta/hans-fogh-nor-2018.pdf">2018 Notice Of Race</a>
+--# <a href="/assets/youth-regatta/hans-fogh-nor-2018.pdf">2018 Notice Of Race</a>
 
-# <a href="/assets/youth-regatta/hans-fogh-si-2018.pdf">2018 Sailing Instructions</a>
+--# <a href="/assets/youth-regatta/hans-fogh-si-2018.pdf">2018 Sailing Instructions</a>
 
-# <a href="/assets/youth-regatta/hans-fogh-registrations-2018.htm">2018 Competitor List</a>
+--# <a href="/assets/youth-regatta/hans-fogh-registrations-2018.htm">2018 Competitor List</a>
 
-# <a href="/assets/youth-regatta/hans-fogh-liability-waiver-2018.pdf">Liability Waiver</a>
+--# <a href="/assets/youth-regatta/hans-fogh-liability-waiver-2018.pdf">Liability Waiver</a>
 
 # <a href="/assets/youth-regatta/hans-fogh-results-final-2017.htm">2017 Results</a>
+# <a href="/assets/youth-regatta/hans-fogh-results-final-2018.htm">2018 Results</a>
 
 
 
