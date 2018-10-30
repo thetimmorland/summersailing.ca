@@ -4,7 +4,7 @@ title: Our Instructors
 permalink: /our-instructors/
 ---
 
-##Now hiring for 2019
+## Now hiring for 2019
 
 # Head Instructor
 
