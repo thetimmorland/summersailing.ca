@@ -4,7 +4,7 @@ title: Registration
 permalink: /registration/
 ---
 
-<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3332">Click Here To Register For 2019 Program</a></h2>
+<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3332">Click Here To Register For 2019</a></h2>
 
 Registration for the summer of 2019 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  
 
