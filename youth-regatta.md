@@ -5,7 +5,7 @@ permalink: /youth-regatta/
 ---
 
 ## Tuesday August 20 & Wednesday August 21 2019
-![Regatta Banner](/assets/youth-regatta/hans-fogh-regatta-event-np-year.png)
+![Regatta Banner](/assets/youth-regatta/hans-fogh-regatta-event-no-year.png)
 
 Hans Fogh was a one of the most successful competitive sailors in history, with dozens of national and international championships and in many different classes, including two Olympic medals. He was a big supporter of youth sailing and we are pleased to name our regatta after him.
 
