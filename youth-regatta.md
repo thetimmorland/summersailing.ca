@@ -4,8 +4,8 @@ title: Hans Fogh Youth Regatta
 permalink: /youth-regatta/
 ---
 
-## Tuesday August 21 & Wednesday August 22 2018
-![Regatta Banner](/assets/youth-regatta/hans-fogh-regatta-event-2018.png)
+## Tuesday August 20 & Wednesday August 21 2019
+![Regatta Banner](/assets/youth-regatta/hans-fogh-regatta-event-np-year.png)
 
 Hans Fogh was a one of the most successful competitive sailors in history, with dozens of national and international championships and in many different classes, including two Olympic medals. He was a big supporter of youth sailing and we are pleased to name our regatta after him.
 
@@ -15,8 +15,9 @@ We strive to keep this event one of the most affordable in the youth racing cale
 
 There are generally few opportunities to race RS Fevas in Ontario and we are keen to support and grow this class.  Clubs with RS Fevas are particularly welcome to race with us.
 
-# <a href="/assets/youth-regatta/hans-fogh-results-final-2017.htm">2017 Results</a>
 # <a href="/assets/youth-regatta/hans-fogh-results-final-2018.htm">2018 Results</a>
+# <a href="/assets/youth-regatta/hans-fogh-results-final-2017.htm">2017 Results</a>
+
 
 
 
