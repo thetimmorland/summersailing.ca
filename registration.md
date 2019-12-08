@@ -4,14 +4,13 @@ title: Registration
 permalink: /registration/
 ---
 
-<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3332">Click Here To Register For 2019</a></h2>
+<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register For 2020</a></h2>
 
 Registration for the summer of 2019 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  
 
-# New in 2019
+# New in 2020
 
-* In preivous years we have offered early drop off and late pick up services free of charge.  With program operating costs increasing, in 2019 there is a small charge for these services.
-* If the course you wich to enroll on is sold out you may now add your name to a wait list in case a cancellation becomes available.
+* We would like to promote youth sailing as an activity that extends beyond the two months of the summer holiday from school.  Our sailing facitily operates from the start of May through to the middle of October, why not consider joining us for Spring training on Sunday afternoons.
 
 # Discounts
 
