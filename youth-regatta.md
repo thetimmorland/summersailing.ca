@@ -17,7 +17,7 @@ We strive to keep this event one of the most affordable in the youth racing cale
 
 There are generally few opportunities to race RS Fevas in Ontario and we are keen to support and grow this class.  Clubs with RS Fevas are particularly welcome to race with us.
 
-# <a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register for 2019</a>
+# <a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register for 2020</a>
 # <a href="/assets/youth-regatta/hans-fogh-nor-2020.pdf">2020 Notice Of Race</a>
 
 # <a href="/assets/youth-regatta/hans-fogh-results-final-2019.htm">2019 Results</a>
