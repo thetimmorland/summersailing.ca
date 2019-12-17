@@ -4,64 +4,25 @@ title: Our Instructors
 permalink: /our-instructors/
 ---
 
-Introducing our 2019 instructor team
+Introducing our 2020 instructor team
 
 ## Victoria Shalygan
 # Head Instructor
 ![Victoria](/assets/our-team/2019Victoria.jpg)
 
-Victoria started sailing as a 10 year-old at summer camp. She fell in love with the sport and continued to learn, sailing Optimists, Laser Picos, CL 14s, and Club 420s, before moving on to try her hand at sailing keelboats of all sizes, including J/24s and a Niagara 35.  She has taught several learn-to-sail programs and curriculums, on each of these boats and more, over the past six years.  Returning to our team for the third year, she is excited to bring her coaching experience to EYC as the Head Instructor for the 2019 season!
+Victoria started sailing as a 10 year-old at summer camp. She fell in love with the sport and continued to learn, sailing Optimists, Laser Picos, CL 14s, and Club 420s, before moving on to try her hand at sailing keelboats of all sizes, including J/24s and a Niagara 35.  She has taught several learn-to-sail programs and curriculums, on each of these boats and more, over the past seven years.  Returning to our team for the fourth year, she is excited to bring her coaching experience to EYC as the Head Instructor for the 2020 season!
 Victoria is a working musician and educator throughout the year, and is working on releasing her debut EP this year.
 
-## Andrew Kanerak
-# Laser Radial Coach
-![Untitled](/assets/our-team/2019Untitled.jpg)
+The other members of our 2020 instructor team are in the process of being interviewed.  We are still accepting applications for the following positions.
 
-## Tim Morland
-# Optimist Race Coach
-![Tim](/assets/our-team/2019Tim.jpg)
+# <a href="/assets/job-postings/2020-EYC-Optimist-Race-Coach.pdf">Optimist Race Coach</a>
 
-Tim started sailing in the EYC Junior Sail Program when he was seven years old.  Initially sailing was just “something to do” for a couple of weeks each summer but somewhere along the line somebody suggested he should try racing, at which point things took off.  He sailed for four weeks the next year, then eight weeks, then the whole season from May to November.  As well as sailing in Ontario, Tim has also travelled to Florida for training and Germany for an international regatta.  He has raced in an Optimist, RS Feva, Club 420 and Laser Radial, competing at numerous dinghy regattas over the last six years.  As well as racing dinghies, Tim is an active participant in the EYC keel boat racing scene as crew on “Still Knot Working” and “Rum Kist”.
-Over the years Tim has lost countless hats and pairs of sunglasses in Lake Ontario.
-When Tim is not sailing, he is studying for a career in engineering and technology.
-2019 is Tim’s second year as our Optimist Race Team Coach.  He is looking forward to passing on what he has learned from his own racing career to the next generation of racers.
+We are looking for a dedicated and experienced coach for our growing Optimist Race Team.  The race team trains Monday to Friday for eight weeks in July and August, typically attending several local regattas during that period including Opti CORK in Kingston.  In addition we run pre and post season training on Sunday afternoons in May & June and September & October.  The goal of the team is to develop a sustained interest in racing in our younger sailors. We expect our coach to push the sailors when appropriate, but also to maintain a fun environment that keeps the sailors coming back for more.
 
-## Sean Wylie
-# CANSail 3/4 Instructor
-![Sean](/assets/our-team/2019Sean.jpg)
+# <a href="/assets/job-postings/2020-EYC-CANSail-3-4-Instructor.pdf">CANSail 3/4 Instructor</a>
 
-Sean has been around sailboats all of his life, from cruising in Georgian Bay to chartering in the North Channel.  Despite this it was not until Sean was a teenager when one of his friends convinced him to sign up for sailing camp at EYC.  After two years in the learn to sail program sailing RS Fevas and Club 420s, Sean made the decision to join the laser race team.  On the race team Sean trained in Florida and attended regattas all across southern Ontario.  It was during that season where he was also introduced to weeknight keelboat racing.  Sean now races in the MCC and EYC weeknight race series’ on “Rum Kist” and “Still Knot Working” alongside some of the other EYC coaches. 
-When Sean is not at EYC, he is racing Collegiate 420s for the University of Ottawa and studying Mechanical Engineering. 
-Sean is excited to return to his position as CANSail 3/4 instructor to continue to grow the sailing skills of some of his students from last year and to meet some new facees.
+We are looking for a dedicated and experienced CANSail 3/4 instructor.  This position is a key pillar of our learn to sail program developing the skills of young sailors most who have completed CANSail 1/2 levels in previous years.  CANSail 3/4 is taught using our C-420s, or in some cases RS Fevas.  Sailors in CANSail 3/4 typically sail for 4 weeks and compete in one local regatta.  The CANSail 3/4 instructor plays an important part in identifying candidates to join our racing teams.  Our core program runs for eight weeks in July and August.  Instructors work an additional week at the start and end of the season for set up and close down of the program.  
 
-## Melodie Philips
-# CANSail 1/2 Instructor
-![Melodie](/assets/our-team/2019Melodie.jpg)
-
-Mélodie started sailing Optimists at the age of 7 at Boulevard Club then moved on to Club 420 for a few years.  She became interested in racing and joined EYC’s Laser race team where she sailed for 2 years and competed in many regattas.  While on EYC’s race team, Mélodie had the opportunity to further develop her sailing skills and ability, and gained confidence on the water. 
-Mélodie spends her weekends at Mimico Cruising Club on her family’s keel boat. 
-In addition to her love of sailing, she is a lifeguard and an avid snowboarder and is fluent in French.
-She looks forward to sharing her love of sailing with younger sailors this summer!
-
-## Nick Graham
-# CANSail 1/2 Instructor
-![Nick](/assets/our-team/2019Nick.jpg)
-
-## Jordan Lalani
-# CANSail 1/2 Instructor
-![Untitled](/assets/our-team/2019Untitled.jpg)
-
-## Derin Berktay
-# CANSail 1/2 Instructor
-![Untitled](/assets/our-team/2019Untitled.jpg)
-
-## Kye Thorburn 
-# CANSail 1/2 Instructor
-![Untitled](/assets/our-team/2019Untitled.jpg)
-
-## Lizzie Morland 
-# Community Instructor
-![Untitled](/assets/our-team/2019Untitled.jpg)
 
 
 
