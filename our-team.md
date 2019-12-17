@@ -13,6 +13,8 @@ Introducing our 2020 instructor team
 Victoria started sailing as a 10 year-old at summer camp. She fell in love with the sport and continued to learn, sailing Optimists, Laser Picos, CL 14s, and Club 420s, before moving on to try her hand at sailing keelboats of all sizes, including J/24s and a Niagara 35.  She has taught several learn-to-sail programs and curriculums, on each of these boats and more, over the past seven years.  Returning to our team for the fourth year, she is excited to bring her coaching experience to EYC as the Head Instructor for the 2020 season!
 Victoria is a working musician and educator throughout the year, and is working on releasing her debut EP this year.
 
+## Hiring Now
+
 The other members of our 2020 instructor team are in the process of being interviewed.  We are still accepting applications for the following positions.
 
 # <a href="/assets/job-postings/2020-EYC-Optimist-Race-Coach.pdf">Optimist Race Coach</a>
