@@ -6,7 +6,7 @@ permalink: /registration/
 
 <h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register For 2020</a></h2>
 
-Registration for the summer of 2019 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  
+Registration for the summer of 2020 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  
 
 # New in 2020
 
