@@ -6,7 +6,7 @@ permalink: /registration/
 
 <h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register For 2020</a></h2>
 
-#COVID-19 Update
+# COVID-19 Update
 
 With many other summer activities on hold or cancelled, we have not yet given up on our 2020 program. Our Management Committee is reviewing the COVID-19 regulations/best practices to determine their impact on the 2020 program delivery.  Based on an initial assessment, there will be significant changes to program scope/session availability.  By June 1st we will know if we can run a program in July and what that program will look like.  Please be aware that on-line registrations have now been paused until the program revisions are finalized.  On line waiting lists are available to ensure you maintain your registration priority.     
 
