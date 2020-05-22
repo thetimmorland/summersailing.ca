@@ -6,20 +6,11 @@ permalink: /registration/
 
 <h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register For 2020</a></h2>
 
-Registration for the summer of 2020 is open now.  The more popular sessions fill up quickly and you are advised to sign up early to avoid disappointment.  
+#COVID-19 Update
 
-# New in 2020
+With many other summer activities on hold or cancelled, we have not yet given up on our 2020 program. Our Management Committee is reviewing the COVID-19 regulations/best practices to determine their impact on the 2020 program delivery.  Based on an initial assessment, there will be significant changes to program scope/session availability.  By June 1st we will know if we can run a program in July and what that program will look like.  Please be aware that on-line registrations have now been paused until the program revisions are finalized.  On line waiting lists are available to ensure you maintain your registration priority.     
 
-* We would like to promote youth sailing as an activity that extends beyond the two months of the summer holiday from school.  Our sailing facitily operates from the start of May through to the middle of October, why not consider joining us for Spring training on Sunday afternoons.
-
-# Discounts
-
-A 10% early bird discount is offered on all courses until March 20th
- 
-After March 20th the following discounts are available:
-
-* A 10% discount for a second child in the same immediate family when both children are registered at the same time. This discount is applied automatically to the registration total in the final payment screen.
-* A 10% discount to current EYC members. Member discounts are manually applied and must be requested by sending an email with your name and membership number to jsp@eyc.ca.
+We apologize for the inconvenience as we navigate these uncharted waters.      
 
 # Notes and Conditions
 
