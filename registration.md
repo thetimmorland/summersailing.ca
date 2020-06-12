@@ -4,22 +4,10 @@ title: Registration
 permalink: /registration/
 ---
 
-<h2><a href="https://secure.e-registernow.com/cgi-bin/mkpayment.cgi?state=3462">Click Here To Register For 2020</a></h2>
 
-# COVID-19 Update
+# COVID-19 2020 Camp Cancelled COVID-19
 
-With many other summer activities on hold or cancelled, we have not yet given up on our 2020 program. Our Management Committee is reviewing the COVID-19 regulations/best practices to determine their impact on the 2020 program delivery.  Based on an initial assessment, there will be significant changes to program scope/session availability.  By June 1st we will know if we can run a program in July and what that program will look like.  Please be aware that on-line registrations have now been paused until the program revisions are finalized.  On line waiting lists are available to ensure you maintain your registration priority.     
+It is with regret that we have announce that our 2020 Summer Program has been canceled.  Our race program will continue in a modified form but all learn to sail sessions are canceled.
 
-We apologize for the inconvenience as we navigate these uncharted waters.      
+We apologize for the inconvenience to those who were looking forward to sailing this year but we will be back in 2021.
 
-# Notes and Conditions
-
-* The Program is open to all youth between the ages of 7 to 17, who want to have fun and experience the thrill of sailing !
-* Participants must have passed the preceeding CANSail level prior to registering for any listed courses. EYC Junior Sail Program staff may access on-line records or request previous course transcripts and certificates at anytime before or during the registered session. Students who cannot validate they have the pre-requisite qualifications may not be able to continue to participate and/or receive a program certificate at the end of the program.
-* Should a student be registered in an incorrect program for any reason, the Junior Sail Program will use its best effort to re-register the student in the appropriate program. Should the appropriate program be full, the student may be deemed unable to continue participation without refund or any other compensation.
-* Where noted, race programs and other related events are subject to HST.
-* All courses start at 9:00am and finish at 4:00pm. If the student is registered in the optional Early Drop Off or Late Pick-up services, then late pick-up must be made prior to 5:30 or additional fees will be applied. The Early Drop Off and Late Pick-up services are limited to providing a safe supervised environment and students should come prepared with classroom-friendly activities or other materials to occupy this time. Students under the age of 14 can only be released from any JSP program or facility to a parent or guardian and are not permitted to self sign-out.
-* EYC reserves the right to cancel sessions with a full refund 10 days prior to the program's start date if minimum registration levels are not met.
-The amount of "on the water" time will vary with each session as sailing is totally weather dependant. The Coaches will use a "safety first" criteria to determine if sailing conditions are acceptable and if not, will use best efforts to provide alternative activities. However, EYC cannot be held responsible for any resulting impact from these actions.
-* Cancellations requested four weeks prior to the program start date will be assessed a $50 admin fee. Cancellations received within four weeks of the program start date will receive a 50% partial refund. No refunds will be considered after courses have commenced for any reason. Please refer to the Program Guide for the complete JSP cancellation policy.
-* Racing boats rented from the program are subject to an inspection at the the start of the season and again at the end of the season.  The cost to repair any damage to the boat beyond normal wear is charged to the renter.
